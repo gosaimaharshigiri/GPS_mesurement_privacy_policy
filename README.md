@@ -1,0 +1,1 @@
+# GPS_mesurement_privacy_policy
